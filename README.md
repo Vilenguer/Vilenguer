@@ -3,7 +3,7 @@
 
 - Im Python developer 👾
 
-- But my first job is Bone marrow transplantator with a lot of medical knowledge and experience 🪪. At some point i decided to swith my interest to IT and trying my best here 🪷
+- But my first job is Bone marrow transplantation with a lot of medical knowledge and experience 🪪. At some point i decided to swith my interest to IT and trying my best here 🪷
 
 - I live in Israel 🕎. Married and have 3 little preciouses 🚼🚼🚼
 
